@@ -1,2 +1,0 @@
-# Nnk
-Nitip doang
